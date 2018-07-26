@@ -1,4 +1,4 @@
-# En este post te dejo 30 frases de Dr. Seuss, un escritor y dibujante estadounidense llamado realmente Theodor Seuss Geisel, autor de best sellers como El gato en el sombrero y Huevos verdes con jamón.
+# En este post te dejo 30 frases de Dr. Seuss (Fecha de nacimiento: 2 de marzo de 1904, Springfield, Massachusetts, Estados Unidos), un escritor y dibujante estadounidense llamado realmente Theodor Seuss Geisel, autor de best sellers como El gato en el sombrero y Huevos verdes con jamón.
 
 tomado de: https://www.lifeder.com/frases-de-dr-seuss/
 
