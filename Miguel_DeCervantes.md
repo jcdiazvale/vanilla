@@ -1,5 +1,5 @@
-   Miguel de Cervantes Saavedra
-   
+
+
 Miguel de Cervantes Saavedra (29 de de septiembre de 1547 – 23 de de abril de 1616) es uno de los más importantes novelistas, poeta y dramaturgo español de todos los tiempos. Su novela  El ingenioso Hidalgo don Quijote de la Mancha (conocida habitualmente como el Quijote) se considera su obra maestra, así como la primera novela moderna.
 
 * “El que lee mucho y anda mucho, ve mucho y sabe mucho.” -Miguel de Cervantes.
