@@ -2,6 +2,8 @@
 
 tomado de: https://www.lifeder.com/frases-de-dr-seuss/
 
+# Las 30 frases de Dr. Seuss:
+
 1- No llores porque terminó. Sonríe porque ocurrió.
 
 2- Solo tú puedes controlar tu futuro.
