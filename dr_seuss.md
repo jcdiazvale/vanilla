@@ -1,7 +1,6 @@
-
-https://www.lifeder.com/frases-de-dr-seuss/
-
 ## En este post te dejo 30 frases de Dr. Seuss, un escritor y dibujante estadounidense llamado realmente Theodor Seuss Geisel, autor de best sellers como El gato en el sombrero y Huevos verdes con jamón.
+
+tomdado de: https://www.lifeder.com/frases-de-dr-seuss/
 
 1-No llores porque terminó. Sonríe porque ocurrió.
 
