@@ -1,8 +1,10 @@
 # Vanilla
+V-0.0.3 2018-07-28
+
 Ejercicio de prueba para aprender a utilizar Github con diversas tecnologías.
 
 ## Objetivo
-Aprender a utilizar Git, Github y markdown con un ejercicio interactivo que a su vez servirá de marco para introducir a los participantes en otras tecnologías como html, css, javascript, php, yalm, json, xml,entre otras.
+Aprender a utilizar Git, Github y markdown con un ejercicio interactivo que a su vez servirá de marco para introducir a los participantes en otras tecnologías como html, css, javascript, php, yalm, json, xml, entre otras.
 
 ## Metodología
 Cada participante creara contenidos en formato markdown y servirá como productor de sus contenidos, así como corrector y controlador de calidad del producto total.
