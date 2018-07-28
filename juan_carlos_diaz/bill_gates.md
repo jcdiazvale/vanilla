@@ -1,0 +1,1 @@
+# Biography of Bill Gates. William Henry Gates was born on 28 October 1955, in Seattle, Was# hington. As the principal founder of Microsoft, Bill Gates is one of the most influential and richest people on the planet.

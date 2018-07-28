@@ -1,0 +1,1 @@
+Michael Pe¤a es un actor de cine y televisi¢n estadounidense de ascendencia mexicana. Ha participado en pel¡culas como Million Dollar Baby y World Trade Center, al igual que en series de televisi¢n como The Shield.

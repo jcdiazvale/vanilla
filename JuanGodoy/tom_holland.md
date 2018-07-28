@@ -1,0 +1,1 @@
+Thomas Stanley Holland (Kingston upon Thames, Surrey; 1 de junio de 1996) es un actor y bailarín británico, conocido por interpretar a Lucas Bennett en la película Lo imposible (2012), a Thomas Nickerson en En el corazón del mar (2015) y Peter Parker/Spider-Man en las películas del Universo cinematográfico de Marvel.
