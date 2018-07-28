@@ -23,5 +23,5 @@ https://programminghistorian.org/es/lecciones/introduccion-a-markdown
 Para garantizar la consistencia, cada archivo tendrá:
 * Un titulo de primer nivel con el nombre completo de cada persona en altas y bajas
 * Un resumen de un parrafo que describa a cada personaje con sus logros más importantes
-* Titulos de segundo nivel para cada tema (infancia, desarrollo profesional, logros)
+* Titulos de segundo nivel para cada tema (infancia, desarrollo profesional, logros u otros titulos sugeridos)
 * Seccion final con las fuentes de donde se extrajo la informacion (incluir viículos y fecha de consulta)
