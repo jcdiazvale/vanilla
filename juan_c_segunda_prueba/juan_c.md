@@ -1,0 +1,1 @@
+# Estoy realizando una práctica donde bajé la información del repositorio https://github.com/jcdiazvale/vanilla  a mi computador local, para luego incluir un subdiretorio en C:\code\vanilla\ llamado juan_c_segunda_prueba, dentro de este último cree un archivo “juan_c.dm”. Y por último será subido a repositorio en la github.
