@@ -1,0 +1,2 @@
+Francis Albert Sinatra, más conocido como Frank Sinatra, fue un cantante y actor estadounidense. Apodado «la Voz», ​ fue una de las principales figuras de la música popular del siglo XX y dejó, ... Wikipedia
+Francis Albert Sinatra, más conocido como Frank Sinatra, fue un cantante y actor estadounidense. Apodado «la Voz», ​ fue una de las principales figuras de la música popular del siglo XX y dejó, ... Wikipedia
