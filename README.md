@@ -41,4 +41,4 @@ El proyecto se trabajará fundamentalmente en markdown para introducir posterior
 
 - El tiempo de Dios es perfecto. William Ache.
 
-- Gracias a Dios por la vida.
+- Gracias a Dios por la vida. Frank
