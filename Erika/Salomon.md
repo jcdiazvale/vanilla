@@ -1,0 +1,1 @@
+El tercer Rey de Israel. Fue muy sabio. 

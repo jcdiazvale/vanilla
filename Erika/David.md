@@ -1,0 +1,1 @@
+Fue el segundo Rey de Israel elegido por Dios. Valiente y vigoroso. 

@@ -1,0 +1,1 @@
+Fue elegido por Dios para liberara a su pueblo 

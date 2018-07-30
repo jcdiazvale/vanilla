@@ -1,0 +1,1 @@
+Es el hijo de Dios, Redentor y salvador de la humanidad 

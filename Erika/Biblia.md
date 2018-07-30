@@ -1,0 +1,1 @@
+Es el libro de Dios donde cuenta sus historias y verdades. 
