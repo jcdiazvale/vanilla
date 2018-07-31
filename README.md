@@ -40,3 +40,5 @@ El proyecto se trabajará fundamentalmente en markdown para introducir posterior
 - Disfrutemos cada momento; como si fuera el último Fabiola Romero.
 
 - El tiempo de Dios es perfecto. William Ache.
+
+- Gracias a Dios por la vida. Frank
